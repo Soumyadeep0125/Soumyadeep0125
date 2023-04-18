@@ -1,4 +1,4 @@
-
+![logo](https://github.com/Soumyadeep0125/Soumyadeep0125/blob/main/Blue%20%26%20White%20Modern%20Gamming%20Channel%20Youtube%20Intro%20Video.png)
 
 <h1 align="center">Hi 👋, I'm Soumyadeep Sadhukhan</h1>
 <h3 align="center">I love to explore and learn about new things.</h3>
